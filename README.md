@@ -1,1 +1,0 @@
-# capitaleteoriadovalor.github.io
